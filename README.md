@@ -3,7 +3,7 @@
 💻  I am a CS student at Boston University<br/>
 🍣  I love Sushi<br/>
 🙈  I love anime<br/>
-👩🏻‍💻  This is my instagram: [eleneem_86](https://www.instagram.com/elenem_86/)<br/>
+👩🏻‍💻  This is my instagram: [elenem_86](https://www.instagram.com/elenem_86/)<br/>
 
 
 ## 🌐 Socials:
